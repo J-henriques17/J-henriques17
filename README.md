@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @J-henriques17
+- 👋 Hi, I’m @HYPECROC
 - 👀 I’m interested in Digital Marketing
 - 🌱 I’m currently learning Website Management, Programing, Intagram Theme Page
 - 💞️ I’m looking to collaborate on Brand Company to promote my brand into next level
